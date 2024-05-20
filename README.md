@@ -1,4 +1,4 @@
-![image](https://github.com/OkeyProxyCom/Extratorrents-Proxy/assets/150340973/64050ea4-0c12-417d-953f-85147be6938b)# Extratorrents-Proxy
+# Extratorrents-Proxy
 ![image](https://github.com/OkeyProxyCom/Extratorrents-Proxy/assets/150340973/c71842da-bb3f-4a45-af6f-4718acd6d01c)
 
 How to Choose the Best Extratorrents Proxy in 2024.
